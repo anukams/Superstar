@@ -1,1 +1,1 @@
-# Supersatr
+# Superstar
